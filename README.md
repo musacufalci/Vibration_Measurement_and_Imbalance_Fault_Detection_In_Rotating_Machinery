@@ -5,3 +5,6 @@ non-uniform density of materials, manufacturing tolerances, and gain or loss of 
 
 https://youtu.be/8pw1DSOo72w
 
+Design by: https://www.linkedin.com/in/musacufalci/
+
+
